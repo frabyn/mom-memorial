@@ -18,7 +18,7 @@ She loved her students. She would work day and night helping them with schoolwor
 
 In 2019, the Houston Chronicle featured her outstanding classroom work in an article. She said her students "face so many circumstances that we don't know everything about" and so "when they come in, I tell them, we're here, we're going to learn things, and we're going to have fun, we're a family and we're safe." She brought her whole spirit to the classroom every day. "We are going to cheer when they're winning and we're going to cry with them when they're not."
 
-She recieved a Master's in Arts in Teaching from the College of Public Service at the University of Houston Downtown in 2020.
+She received a Master's in Arts in Teaching from the College of Public Service at the University of Houston Downtown in 2020.
 
 She is survived by her siblings, Paula Gann of Kilgore, Texas and Michael Perdue of Cleveland, Texas; by her three sons, Matthew, Samuel, and Franklin, currently the judge of Harris County Criminal Court at Law # 8; and by one grandchild, Marguerite Maureen Bynum. She loves them all to the moon and back.
 
