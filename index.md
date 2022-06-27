@@ -1,3 +1,8 @@
+![signal-2022-06-26-183903_001](https://user-images.githubusercontent.com/8341207/175839353-a9d18dd0-6799-44ea-ad47-82dbd9bb2824.jpeg)
+
+# Debra Ann Perdue
+## Janury 15, 1958 - June 22, 2022
+
 Debra Ann Perdue passed away peacefully on June 22, 2022, at home surrounded by her family. The cause was breast cancer. She was 64.
 
 Debbie was born in Anaheim, California on January 15, 1958, to Paul Allen Perdue and Gertha Lee Morris Perdue, the second of three children. The Perdue family eventually settled in Houston. Debbie graduated from North Shore High School in 1976.
@@ -17,3 +22,4 @@ She recieved a Master's in Arts in Teaching from the College of Public Service a
 She is survived by her siblings, Paula Gann of Kilgore, Texas and Michael Perdue of Cleveland, Texas; by her three sons, Matthew, Samuel, and Franklin, currently the judge of Harris County Criminal Court at Law # 8; and by one grandchild, Marguerite Maureen Bynum. She loves them all to the moon and back.
 
 The memorial service is on Thursday, June 30 at 7 p.m. at The Church of Jesus Christ of Latter-Day Saints at 1101 Bering Drive in Houston.
+
