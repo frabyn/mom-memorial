@@ -1,6 +1,8 @@
-# Debra Ann Perdue
 ## Janury 15, 1958 - June 22, 2022
+
 ![signal-2022-06-26-183903_001](https://user-images.githubusercontent.com/8341207/175839353-a9d18dd0-6799-44ea-ad47-82dbd9bb2824.jpeg)
+
+# Debra Ann Perdue
 
 Debra Ann Perdue passed away peacefully on June 22, 2022, at home surrounded by her family. The cause was breast cancer. She was 64.
 
